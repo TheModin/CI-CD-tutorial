@@ -1,1 +1,1 @@
-Hej Gnaget!
+Heja Gnaget!
